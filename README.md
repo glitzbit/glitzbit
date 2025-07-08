@@ -5,10 +5,10 @@
 19 ╎ gyaru ╎ She/They
 </p>
 <p align="center">
-<img width="265" src="https://cdn.discordapp.com/attachments/1102610455056363591/1387947267712880801/PaUQn8AAAAASUVORK5CYII.png?ex=685f321f&is=685de09f&hm=a5d31f42b25ad9839b1940edddf938f0f0e8a6256dae85b9d052eac93fcb2a81&" alt="izuocha my loves">
+<img width="265" src="https://64.media.tumblr.com/d03fd68afe23293eb1b7d34778c8ba99/4f0adc1542bbac3c-85/s640x960/4dbf9e10e25942fb4e1b87c8cf4dcbc64a75278d.pnj" alt="izuocha my loves">
 </p>
 <p align="center">
 I won't int. with minors (people in my party/friend group are fine)
 </p>
 <p align="center">
-<img width="265" src="https://cdn.discordapp.com/attachments/1102610455056363591/1387950441538781337/jcCFsFYVmEhYCFgIWAh8LMgYBHMzwKrdVMLAQsBCwELAYtgLBuwELAQsBCwEPhZELAI5meB1bqphYCFgIWAhYBFMJYNWAhYCFgIWAj8LAj8H4UONY76dhf2AAAAAElFTkSuQmCC.png?ex=685f3514&is=685de394&hm=20d418461a1c36787624fadd49675e286629b80f926ab6d758f18ceb11f0b628&" alt=me irl>
+<img width="265" src="https://64.media.tumblr.com/5dc5fe11c75c93c9b15f578ab442f674/4f0adc1542bbac3c-b1/s500x750/19f07ade2e297c26a5d4e2e5275238a7f8174c70.pnj" alt=me irl>
