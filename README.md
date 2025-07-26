@@ -1,14 +1,15 @@
 <p align="center">
-<img width="265" src="https://cdn.discordapp.com/attachments/1102610455056363591/1387947183218888895/BdBL2rsaSislQAAAABJRU5ErkJggg.png?ex=685f320b&is=685de08b&hm=fe35fd59839609fa2da8865525274421af4e1909d391292af2912d20187bef72&" alt="ochako hearts">
+<img width="200" src="https://64.media.tumblr.com/19bc05d5a03df0518fa7110139bfd96b/6cc44caa15d6c56d-59/s500x750/0cd5cd9b7c154fd018d681f51b6b6bae8637c149.pnj" alt="me irl btw">
 </p>
 <p align="center">
 19 ╎ alternative ╎ She/They
 </p>
 <p align="center">
-<img width="265" src="https://64.media.tumblr.com/d03fd68afe23293eb1b7d34778c8ba99/4f0adc1542bbac3c-85/s640x960/4dbf9e10e25942fb4e1b87c8cf4dcbc64a75278d.pnj" alt="izuocha my loves">
+<img width="175" src="https://64.media.tumblr.com/122598fad194dd5a46636879a6485241/6cc44caa15d6c56d-38/s500x750/c4e6ddaeb6cbf6a55261ed17fcf5660da3d86905.pnj" alt="makas soul">
 </p>
 <p align="center">
-I won't int. with minors (people in my party/friend group are fine)
+I won't int. with much minors or be close with them (people in my party/friend group are fine)
 </p>
 <p align="center">
-<img width="265" src="https://64.media.tumblr.com/5dc5fe11c75c93c9b15f578ab442f674/4f0adc1542bbac3c-b1/s500x750/19f07ade2e297c26a5d4e2e5275238a7f8174c70.pnj" alt=me irl>
+<img width="400" src="https://64.media.tumblr.com/5fc737f1ce9ca4a1933c4f1ee4caa0d7/6cc44caa15d6c56d-09/s1280x1920/6f4a1c08765873e4907b624f3941b74c0a271d3e.pnj" alt="me and isaac irl trust">
+<p align="center">
