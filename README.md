@@ -13,3 +13,10 @@ I won't int. with much minors or be close with them (people in my party/friend g
 <p align="center">
 <img width="400" src="https://64.media.tumblr.com/5fc737f1ce9ca4a1933c4f1ee4caa0d7/6cc44caa15d6c56d-09/s1280x1920/6f4a1c08765873e4907b624f3941b74c0a271d3e.pnj" alt="me and isaac irl trust">
 <p align="center">
+</p>
+<p align="center">
+<sub/> soul eater, DC, DMC </sub>
+<br align="center">
+  ⇩
+<br align="center">
+<sub/> Akira, MHA, Undertale/Deltarune </sub>
