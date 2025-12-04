@@ -1,17 +1,17 @@
 <p align="center">
-<img width="100" src="https://64.media.tumblr.com/657f8df5527ce53d39a7bcd8c61b1cc9/7d412215a9e33efa-fb/s250x400/f0779eb899c5be9811b534b275ead2701885f0fe.gifv" alt="pretty knife">
+<img width="50" src="https://64.media.tumblr.com/177eb89e76b864f8bbede6f811ef8182/11e82b2bd8e9face-c6/s1280x1920/d31c0de9a5400fe7140e8852a6201ea2a20eab86.pnj" alt="sunglasses">
 </p>
 <p align="center">
 19 ╎ alternative ╎ She/They
 </p>
 <p align="center">
-<img width="125" src="https://64.media.tumblr.com/c83f20afb6a3875b233c40fd2a7b30fa/8cf0c8cfc0284740-1a/s250x400/9de57c6cb7d61f391b45258bb6e0d0ed4a1d5708.gifv" alt="bedazzled phone case">
+<img width="275" src="https://64.media.tumblr.com/5bace556a400a4048e2fd0a526242277/d948777dd8d2967c-a6/s2048x3072/2df2465cecd66001041d78620a937e0312c600df.pnj" alt="bow and chain divider">
 </p>
 <p align="center">
 I won't int. with much minors or be close with them (people in my party/friend group are fine)
 </p>
 <p align="center">
-<img width="200" src="https://64.media.tumblr.com/981c1b668d8862f7102f8b8e6bb3e4b7/87783a1b351e0cb0-cb/s250x400/72bc3c6eaa1e5deef09dbd7dec8cbb3a0dfdf5bf.gifv" alt="gloomy bear">
+<img width="30" src="https://64.media.tumblr.com/2c894944273552ec7b527c969e9c64d0/22446b416299184a-c8/s75x75_c1/297b3a07366c0695c7131feefb7992a60a175714.gifv" alt="pizza">
 <p align="center">
 </p>
 <p align="center">
